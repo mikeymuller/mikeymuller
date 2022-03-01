@@ -1,4 +1,4 @@
-Hi, I'm Mikey! I'm currently a managment conusltant looking to re-enter the tech and data space. Interested in all things - 
+Hi, I'm Mikey! I'm currently a management consultant looking to re-enter the tech and data space. Interested in all things - 
 - 📈 Data science 
 - ⚽ Sports analytics 
 - 🎹 Music trends 
